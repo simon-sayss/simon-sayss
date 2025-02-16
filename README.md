@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @simon-sayss - aka Shark Chance
-- 👀 I’m interested in ... phighting, forsaken, roblox myths, etc !
+- 👀 I’m interested in ... phighting, forsaken, roblox myths, grpahic design / web design, tech stuff,  etc !
 - 🌱 I’m currently learning ... psychology, basic highschool subjects 
 - 💞️ I’m looking to collaborate on ... making friendsss !!
 - 📫 How to reach me ... ask for disc !
